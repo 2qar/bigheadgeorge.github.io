@@ -1,2 +1,2 @@
-# bigheadgeorge.github.io
-Wacky website thingy, my dude
+# my website from hell
+i dont have anything to put here yet
